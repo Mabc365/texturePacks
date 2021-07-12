@@ -1,3 +1,0 @@
-# Texture Packs
-
-tedst main

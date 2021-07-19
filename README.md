@@ -5,7 +5,7 @@
 
 ## Logic 32x
 
-## [https://www.mediafire.com/file/sr80bo2x14iq2dg/Logic_32x.zip/file](https://www.mediafire.com/file/sr80bo2x14iq2dg/Logic_32x.zip/file)
+## [https://www.mediafire.com/file/sr80bo2x14iq2dg/Logic_32x.zip/file](https://download1490.mediafire.com/c3qcw7gbcd3g/6euhcfvwrho6dqf/Logic+32x.zip)
 
 [Back to Table of Contents](https://mabc365.github.io/tableOfContents)
 
